@@ -7,4 +7,5 @@ daskpbgf/nh/el;e;g/m
 '/ngh/fyjjmcg/mgh/dqwofwef
 fgh/jkjhgh/jhghg/g/g/g/g/g/g/g/g/g/g/g/g/g/g/g/g///////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
 i wnt to expanission th/is business to several areas for that i need some marketing persons
- 
+ ro92t3tog/e  
+ feig/grh/tthr mglg/thtthrth/snsrwtth/ 
