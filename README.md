@@ -1,6 +1,6 @@
 # business
-this is a startup
-teuerfsdkg/srjb
+* this is a startup
+* teuerfsdkg/srjb
 qwruerg/aergp/tsrb
 rerh/strh/hm/dh/////
 daskpbgf/nh/el;e;g/m
